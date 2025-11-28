@@ -1,1 +1,1 @@
-Accenture
+Accenture Company
